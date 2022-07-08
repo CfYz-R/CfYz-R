@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning how to live this rapid life
 - 💞️ I’m not looking to collaborate on anything
 - 📫 How to reach me - just send me something
+- ㊙️ there is hope...
 
 <!---
 ✨ Special comment! ✨
